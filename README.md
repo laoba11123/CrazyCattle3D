@@ -3,6 +3,8 @@
 **Are you ready to enter a world of udder chaos and bovine mayhem?**  
 Welcome to **Crazy Cattle 3D** – the wildest, funniest, and most addictive **3D cow simulator** game on the market!
 
+👉 **Play now:** [https://nowgames.net](https://nowgames.net?utm_source=laoba11123)
+
 ## 🐄 What is Crazy Cattle 3D?
 
 **Crazy Cattle 3D** is a hilarious **crazy animal game** where you take control of a mischievous cow with a thirst for chaos. Run through farms, crash into fences, launch into the air, and cause utter destruction – all in stunning **3D graphics**. This isn’t your average farm simulator; this is **cow chaos turned into an action-packed adventure**.
